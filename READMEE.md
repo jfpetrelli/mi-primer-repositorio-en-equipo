@@ -1,2 +1,2 @@
-mi-primer-repositorio-en-equipo
+Birchner
 Petrelli
